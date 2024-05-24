@@ -1,4 +1,4 @@
-- Call me Key/kie/Gas (or even childes husband/hj)
+- Call me Key/kie (or even childes husband/hj)
 - c+h whenever you like to, just don't be weird :'-( 
 - I tend to have multiple styles, mb!!!
 - I like egg.
