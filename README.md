@@ -9,8 +9,8 @@
 
 
 
-.   .   .   .   I go with the name key / toilet :3
-                                                   - Feel free to c+h! W2i if you want to _. . . 
+.   .   .   .   I go by the name key / toilet :3
+                                                   - Feel free to C+H ! W2i if you want to _ . . . 
 
 
 - I tend to not stay in one style, so if it's similar to yours .. don't be afraid to say your concerns ! 
