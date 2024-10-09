@@ -9,3 +9,7 @@
     - I tend to not stay in one style, so if it's similar to yours .. don't be afraid to say your concerns ! -
 
       .                 ...                  . Keep in mind that I'm a minor ! 
+
+
+      `DC : .t0ilet 
+      `Roblox: S0mePerson_0
