@@ -2,9 +2,9 @@
 .                     (Guys, I'm not emo pls. INT!!)
 
 
-       .   .   .   .   I go by the name key / toilet :3   .   .   .   .
+       .   .   .   .   I go by the name key / toilet / soul :3   .   .   .   .
 
-            .  .  . _ Feel free to C+H ! W2i if you want to _ . . . 
+             .  .  . _ Feel free to [C+H ! W2i] if you want to _ . . . 
 
     - I tend to not stay in one style, so if it's similar to yours .. don't be afraid to say your concerns ! -
 
