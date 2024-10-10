@@ -25,8 +25,8 @@
 
 
 .
-
-![images-removebg-preview (1)](https://github.com/user-attachments/assets/b843936b-f22c-474b-9de0-10883194c8b1) <i>12.23 ![images-removebg-preview (1)](https://github.com/user-attachments/assets/68df3d8f-932d-4edc-a671-aa9d4dca2145)
+<p align="center"> <i>12.23</i>
+![images-removebg-preview (1)](https://github.com/user-attachments/assets/b843936b-f22c-474b-9de0-10883194c8b1) 
 
 
 
