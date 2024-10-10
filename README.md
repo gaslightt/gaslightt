@@ -6,8 +6,7 @@
 
 
 
-
-![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/f89182cf-56a5-4504-986e-da74c3862791)![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/d44dae73-2fa9-4a5c-a46a-5afd8552cfbd)![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/944e61e7-4417-4676-8c18-5ac64e017840) <p align="center"> ![PTSD – The Running Thriver](https://github.com/user-attachments/assets/ae923177-7df5-4f42-8be2-51c649666d10)
+ ![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/f89182cf-56a5-4504-986e-da74c3862791)![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/d44dae73-2fa9-4a5c-a46a-5afd8552cfbd)![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/944e61e7-4417-4676-8c18-5ac64e017840)![85653a7c041fb03d7371f617a4f45c1b-removebg-preview](https://github.com/user-attachments/assets/9760bd66-f08a-4d5f-b2f1-42827ce1063d) <p align="center"> ![PTSD – The Running Thriver](https://github.com/user-attachments/assets/ae923177-7df5-4f42-8be2-51c649666d10)
 
 
 .                     (Guys, I'm not emo pls. INT!!)
@@ -27,7 +26,7 @@
 .
 
 
-![images-removebg-preview (1)](https://github.com/user-attachments/assets/11cd4912-f819-42b8-99c0-5382b72054b0) <p align="center"> ![images-removebg-preview (1)](https://github.com/user-attachments/assets/9960aa8b-31b7-4744-8d79-998795022c31)
+![images-removebg-preview (1)](https://github.com/user-attachments/assets/11cd4912-f819-42b8-99c0-5382b72054b0) ![images-removebg-preview (1)](https://github.com/user-attachments/assets/c021c434-42f5-43e5-8e2e-d93c649b90a9) <p align="center"> ![images-removebg-preview (1)](https://github.com/user-attachments/assets/9960aa8b-31b7-4744-8d79-998795022c31)
 
 
 
