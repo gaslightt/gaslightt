@@ -29,3 +29,7 @@
 - <b>DNI !
 
 `` <b>RYO/SHU (yyuuxo) <i>/j
+
+`` <b>YOOMER/HOMER (yonelover) <i>/j 
+
+`` <b>VANRI (vankitorii) <i>/j
