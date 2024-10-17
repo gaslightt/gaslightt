@@ -47,7 +47,7 @@
 
 --<a>Homer/yoomer (locked up and chained)--
 
---<a>Ryo/shu (locked up and chained)--
+--<a>Ryo/shu (leashed, locked up and chained)--
 
 --<a>Ryo's lips--
 
