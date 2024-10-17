@@ -17,7 +17,7 @@
 <p align="center"> .                 ...                  . Keep in mind that I'm a <b>minor !</b> 
 
 
-. <p align="center"> ![images-removebg-preview (1)](https://github.com/user-attachments/assets/11cd4912-f819-42b8-99c0-5382b72054b0)
+𐙚  ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ <p align="center"> ![images-removebg-preview (1)](https://github.com/user-attachments/assets/11cd4912-f819-42b8-99c0-5382b72054b0)
 
 
 
@@ -25,7 +25,7 @@
       `Roblox: S0mePerson_0
 
 
---------------------------------------------------------------------------------------------------------------------------------
+ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ <p align="center"> *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ <p align="right"> *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
 - <b>DNI !
 
@@ -34,3 +34,21 @@
 `` <b>YOOMER/HOMER (yonelover) <i>/j 
 
 `` <b>VANRI (vankitorii) <i>/j
+
+
+ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ 𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ °❀⋆.ೃ࿔*:･ ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐
+
+
+- <b>WHAT'S INSIDE MY BASEMENT COLLECTION !
+
+---<a>Vanri's voicebox--
+
+--<a>A strand of Vanri's eyelash--
+
+--<a>Homer/yoomer (locked up and chained)--
+
+--<a>Ryo/shu (locked up and chained)--
+
+--<a>Ryo's lips--
+
+--<a>A persons freak--
