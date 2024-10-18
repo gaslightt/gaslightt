@@ -45,6 +45,8 @@
 
 --<a>A strand of Vanri's eyelash--
 
+--<a>2 strands of Vanri's hair--
+
 --<a>Homer/yoomer (locked up and chained)--
 
 --<a>Ryo/shu (leashed, locked up and chained)--
