@@ -53,6 +53,8 @@
 
 --<a>Homer/yoomer (locked up and chained)--
 
+--<a>Homer's kidney--
+
 --<a>Ryo/shu (leashed, locked up and chained)--
 
 --<a>Ryo's lips--
