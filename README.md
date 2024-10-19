@@ -47,10 +47,16 @@
 
 --<a>2 strands of Vanri's hair--
 
+--<a>Vanri's nose--
+
+--<a>Vanri (locked up and chained)--
+
 --<a>Homer/yoomer (locked up and chained)--
 
 --<a>Ryo/shu (leashed, locked up and chained)--
 
 --<a>Ryo's lips--
+
+--<a>Ryo's eyeball--
 
 --<a>A persons freak--
