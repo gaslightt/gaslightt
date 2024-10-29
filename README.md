@@ -1,3 +1,5 @@
+<p align="center"> <b>DO NOT COPY NOR INSPO, PLS. Thank you.</a> 
+
 <p align="center"> 𝓱𝓮𝓵𝓵𝓸! (I don't know how to use github lol) <<i>ilikepink
 
 ![](https://komarev.com/ghpvc/?username=gaslightt&color=ffd0d0&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)
