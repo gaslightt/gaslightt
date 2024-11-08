@@ -1,4 +1,4 @@
-<p align="center"> <b>DO NOT COPY NOR INSPO, PLS. Thank you.</a> 
+<p align="center"> <b>DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a> 
 
 <p align="center"> 𝓱𝓮𝓵𝓵𝓸! (I don't know how to use github lol) <<i>ilikepink
 
