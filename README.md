@@ -10,8 +10,7 @@
 
 <p align="center"> .                 ...                  . Keep in mind that I'm a <b>minor !</b> 
 
-
-![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)
+;// <p align="center">![a191de2d5fd4ec2f24e24369b09f4c34-removebg-preview](https://github.com/user-attachments/assets/635bc0c3-b4fa-459b-968a-0179e93dda1e) <p align="center">![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/1edeb8ab-c6e6-4a4d-9bf0-06371512b15c)
 
 ⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖
 
