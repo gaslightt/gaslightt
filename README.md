@@ -1,9 +1,9 @@
 <p align="center"> <b> DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a>
 
-⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=251f1d&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center"> ![b8dc9c61d0eed235b63fcc10416d1b34-removebg-preview](https://github.com/user-attachments/assets/afa68392-e3b0-4797-b975-feb7be44a39b)
+⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=da7a90&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center"> ![cdb37fffab3771d4218bc1e97d6fcac8](https://github.com/user-attachments/assets/95142523-9876-4be4-b64b-c2f61efd897f)
 
 
-<p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b>  / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
+<p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
 
 <p align="center">     <i> Any {C+H} </b> ˚˖𓍢ִ໋🦢˚
 
@@ -11,8 +11,7 @@
 
 <p align="center"> .                 ...                  . 16 000 :^((( </b> 
 
-;// <p align="center">![a191de2d5fd4ec2f24e24369b09f4c34-removebg-preview](https://github.com/user-attachments/assets/635bc0c3-b4fa-459b-968a-0179e93dda1e)<p align="center">![e8574d56278865998c86ce48805564b7](https://github.com/user-attachments/assets/ec78bada-67d9-464a-a4d4-6a71520c3581)<p align="center">![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/72a1a569-7713-4dc0-a5ac-cf1108049729)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/72a1a569-7713-4dc0-a5ac-cf1108049729)![07a5252e8663ca66253aa520336fdc78-removebg-preview](https://github.com/user-attachments/assets/72a1a569-7713-4dc0-a5ac-cf1108049729)
-
+;// <p align="center"> ![5848912f04e7d2a1886d97bf369beaf3](https://github.com/user-attachments/assets/e393589b-3782-4076-87a5-6f13c3d1a42c)
 
 
 ⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖
@@ -20,3 +19,5 @@
       `DC : .t0ilet 
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
+
+$${\color{pink}me \space \color{white}<3 \space \color{pink}him}$$
