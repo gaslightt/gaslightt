@@ -20,4 +20,4 @@
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
 
-$${\color{pink}me \space \color{white}<3 \space \color{pink}him}$$
+$${\color{pink}me \space \color{white}and \space \color{pink}who?}$$
