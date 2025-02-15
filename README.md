@@ -19,4 +19,4 @@
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
 
-$${\color{black}me \space \color{white}and \space \color{black}who?}$$
+$${\color{teal}me \space \color{white}and \space \color{red}him?}$$
