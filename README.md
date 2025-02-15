@@ -1,6 +1,6 @@
 <p align="center"> <b> DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a>
 
-⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=e9e1cd&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center"> ![5230004a286b6fd261c839649ecbae8a](https://github.com/user-attachments/assets/9c04fb7d-e6c9-4446-ad33-bf594a59d90e)
+⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=519d92&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center"> ![188a1741c40f73f667e9eaf28d5d8f33-removebg-preview](https://github.com/user-attachments/assets/a41c52b1-154e-44b1-86ad-259a45bb4922)
 
 
 <p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
@@ -11,7 +11,7 @@
 
 <p align="center"> .                 ...                  . 16 000 :^((( </b> 
 
-;// <p align="center"> ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/user-attachments/assets/2c24d7f1-a630-4a90-a293-1e98e348a9fd)
+;// <p align="center"> ![11566d5342cccc32a825d58a10fc9028](https://github.com/user-attachments/assets/dd950ec0-7a45-4212-8775-41a92ea1b280)
 
 ⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖
 
