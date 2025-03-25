@@ -1,6 +1,6 @@
 <p align="center"> <b> DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a>
 
-⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=eddac1&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">![a92c23f68a148cca8aebbbbfa7771ed2-removebg-preview](https://github.com/user-attachments/assets/4f786011-dbcd-4bf8-9396-95e208cc777c)
+⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=fcbb61&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">![a92c23f68a148cca8aebbbbfa7771ed2-removebg-preview](https://github.com/user-attachments/assets/4f786011-dbcd-4bf8-9396-95e208cc777c)
 
 <p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
 
