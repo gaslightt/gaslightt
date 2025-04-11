@@ -1,6 +1,7 @@
 <p align="center"> <b> DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a>
 
-⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=fcbb61&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">![a92c23f68a148cca8aebbbbfa7771ed2-removebg-preview](https://github.com/user-attachments/assets/4f786011-dbcd-4bf8-9396-95e208cc777c)
+⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=252422&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">![8beb309d85947ca58951ccc26f78df77](https://github.com/user-attachments/assets/5349b02d-2289-4d3a-90ad-3d1a87717879)
+
 
 <p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
 
@@ -10,7 +11,8 @@
 
 <p align="center"> .                 ...                  . 16 000 :^((( </b> 
 
-;// <p align="center">![64d7aa8a02788b863f5a5af26851502e](https://github.com/user-attachments/assets/bcc6ce88-3e2b-4719-a429-7eb98eef8878)
+;// <p align="center">![d841aae0d96be09a1b69dd534a1d2c70-removebg-preview](https://github.com/user-attachments/assets/0cd75da1-0b31-4a2c-a60e-fec9fc32f4d1)
+
 
 
 
@@ -20,4 +22,4 @@
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
 
-$${\color{red}me \space \color{white}and \space \color{black}him?}$$
+$${\color{black}me \space \color{white}and \space \color{black}him}$$
