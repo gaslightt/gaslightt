@@ -11,11 +11,6 @@
 
 <p align="center"> .                 ...                  . 16 000 :^((( </b> 
 
-;// <p align="center">![d841aae0d96be09a1b69dd534a1d2c70-removebg-preview](https://github.com/user-attachments/assets/0cd75da1-0b31-4a2c-a60e-fec9fc32f4d1)
-
-
-
-
 ⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖
 
       `DC : .t0ilet 
