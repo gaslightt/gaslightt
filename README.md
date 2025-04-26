@@ -17,4 +17,4 @@
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
 
-$${\color{black}me \space \color{white}and \space \color{black}him}$$
+$${\color{black}me \space \color{white}and \space \color{black}myself}$$
