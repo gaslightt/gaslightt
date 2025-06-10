@@ -17,4 +17,4 @@
       `Roblox: S0mePerson_0
 <p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
 
-      $${\color{black}me \space \color{white}and \space \color{black}myself}$$
+<p align="center"> <b>BARELY ONLINE in pt, play w me in roblox instead :3</b>
