@@ -1,14 +1,12 @@
 <p align="center"> <b> DO NOT COPY NOR TAKE INSPO, PLS. Thank you.</a>
 
-⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=f2ebc1&label=GAY+PEOPLE+COUNT&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">
+⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖ <p align="center"> ᶻ 𝗓 𐰁 ![](https://komarev.com/ghpvc/?username=gaslightt&color=f2ebc1&label=beomies&abbreviated=true&style=plastic)ᶻ 𝗓 𐰁  <p align="center">
 <img width="350" height="350" alt="4e11c7522d0a635d386c4329edf68547-removebg-preview" src="https://github.com/user-attachments/assets/cec21524-2788-41a6-a4d8-89aaf939b8e8" />
 
 
-<p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>toilet</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
+<p align="center"> ᶻ 𝗓 𐰁 . . <b><i>key</i></b> / <b <i>beom</i> </b> / <b> <i>soul</i> </b>:3   .   .   . 
 
-<p align="center">     <i> Any {C+H} </b> ˚˖𓍢ִ໋🦢˚
-
-<p align="center"> - 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚑𝚊𝚟𝚎 𝚖𝚞𝚕𝚝𝚒𝚙𝚕𝚎 𝚜𝚑𝚊𝚍𝚒𝚗𝚐 𝚜𝚝𝚢𝚕𝚎. 𝙻𝙼𝙺 𝚒𝚏 𝚖𝚢 𝚜𝚝𝚢𝚕𝚎 𝚒𝚜 𝚜𝚒𝚖𝚒𝚕𝚊𝚛 𝚝𝚘 𝚢𝚘𝚞𝚛𝚜. ! -
+<p align="center">     <i> Any {C+H} </b> ˚˖🦢˚
 
 <p align="center"> .                 ...                  . 16 000 :^((( </b> 
 
