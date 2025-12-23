@@ -9,7 +9,7 @@
 
 <p align="center">     <i> Any {C+H} </b> ˚˖🦢˚
 
-<p align="center"> .                 ...                  . 16 000 :^((( </b> 
+<p align="center"> .                 ...                  . 17 000 :^((( </b> 
 
 ⊹ ࣪ ˖ <p align="right">⊹ ࣪ ˖
 
