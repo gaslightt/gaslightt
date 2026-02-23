@@ -15,6 +15,6 @@
 
       `DC : .t0ilet 
       `Roblox: S0mePerson_0
-<p align="center"> ᶠᶸᶜᵏᵧₒᵤ!
+<p align="center"> ᵧₒᵤ... don't be shy.
 
-<p align="center"> <b>BARELY ONLINE in anything. Too busy with my life :3</b>
+<p align="center"> <b>It turned out to be a lie... Hi gangs! :-) </b>
