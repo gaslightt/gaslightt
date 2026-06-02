@@ -1,4 +1,4 @@
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>‎ 
+>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>‎ 
 
 ‎ <p align=center>ᶻ 𝗓![](https://komarev.com/ghpvc/?username=gaslightt&color=000000&label=beomies&abbreviated=true&style=plastic)𝗓 𐰁
 
@@ -12,7 +12,7 @@ $${\color{white}17 \space \color{black}‎ \space \color{grey}[isfp]}$$
 ‎ 
 ‎ 
 ‎ 
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>‎‎ 
+>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>‎‎ 
  
       `DC : .t0ilet 
       `Roblox: S0mePerson_0 
