@@ -18,3 +18,5 @@ $${\color{white}17 \space \color{black}‎ \space \color{grey}[isfp]}$$
       `Roblox: S0mePerson_0 
 ---
 $${\color{grey}Other \space \color{grey}accs:}$$ [@VirginS0ul](https://github.com/VirginS0ul) . [@beomieee](https://github.com/beomieee) . [@childekisserilovemen69](https://github.com/childekisserilovemen69) . [@TOil3T ](https://github.com/TOil3T) . [faIIen-wings](https://github.com/faIIen-wings)
+
+--- <p align=center>Thank youu, [pt-players](https://github.com/pt-players) !
